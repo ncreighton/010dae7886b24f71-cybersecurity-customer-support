@@ -1,0 +1,2 @@
+# 010dae7886b24f71-cybersecurity-customer-support
+switching between tabs and losing context costs you real money. This browser extension pays for itself in one use.  Under 1MB. Zero performance impact on browser speed. Privacy-first: all processing stays local, no data sent to third-party servers.  ## What's Included  - Cybersecurity Customer Support Ticketing — fully configured and ready to use -
